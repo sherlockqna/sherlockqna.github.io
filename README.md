@@ -1,1 +1,0 @@
-# sherlockqna.github.io
